@@ -36,3 +36,11 @@ Tôi tự hào và biết ơn con trai yêu quý, nguồn động lực để t�
 <p align="right">
 <b><i>BSCKI Nguyễn Chí Thành</i></b>
 </p>
+
+
+
+https://github.com/user-attachments/assets/3adf8c69-d804-45f2-b79e-8522aaae3997
+
+
+
+
