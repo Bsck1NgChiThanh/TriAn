@@ -10,7 +10,7 @@
 
 ## [Nhận Kỷ niệm chương "Vì sức khỏe nhân dân" năm 2026](https://drive.google.com/file/d/102e9Xsme0ovt7d1TQRjAqfnWbc9kncrt/view?usp=sharing)
 
-<img width="1254" height="1254" alt="KNC Vì sức khỏe nhân dân" src="https://github.com/user-attachments/assets/3722a2fe-1cff-4a82-9061-0ae8cb7038fe" />
+<img width="1254" height="1254" alt="KNC Vì sức khỏe nhân dân" src="https://github.com/user-attachments/assets/35fd6b56-1ec7-49c8-b997-41fa44da0c35" />
 
 ## [Đang lấy ý kiến đề nghị tặng thưởng Huân chương Lao động hạng Ba](https://camau.gov.vn/thong-tin-thi-dua-khen-thuong/lay-y-kien-nhan-dan-doi-voi-15-ca-nhan-de-nghi-tang-thuong-huan-chuong-lao-dong-301599?gidzl=Uz137IZroXbvoaeR9-pE67VEIHy_w9fBFCyS66wwdqyydqWVFxl06c-U4au_ky8UEfqIIJ5c4R4rBF367G)
 
