@@ -8,19 +8,17 @@
   <img width="350" alt="Ảnh BS Thành 4x6" src="https://github.com/user-attachments/assets/d11e7e99-f069-4974-a790-6a1e98dadb9d" />
 </p>
 
-## Nhận Kỷ niệm chương "Vì sức khỏe nhân dân" năm 2026
+## [Nhận Kỷ niệm chương "Vì sức khỏe nhân dân" năm 2026](https://drive.google.com/file/d/102e9Xsme0ovt7d1TQRjAqfnWbc9kncrt/view?usp=sharing)
 
-[<img width="727" height="498" alt="KNC" src="https://github.com/user-attachments/assets/a058d061-f331-41ed-b655-05d346b81775" />](https://drive.google.com/file/d/102e9Xsme0ovt7d1TQRjAqfnWbc9kncrt/view?usp=sharing)
+<img width="1254" height="1254" alt="KNC Vì sức khỏe nhân dân" src="https://github.com/user-attachments/assets/3722a2fe-1cff-4a82-9061-0ae8cb7038fe" />
 
-## Đang lấy ý kiến đề nghị tặng thưởng Huân chương Lao động hạng Ba
+## [Đang lấy ý kiến đề nghị tặng thưởng Huân chương Lao động hạng Ba](https://camau.gov.vn/thong-tin-thi-dua-khen-thuong/lay-y-kien-nhan-dan-doi-voi-15-ca-nhan-de-nghi-tang-thuong-huan-chuong-lao-dong-301599?gidzl=Uz137IZroXbvoaeR9-pE67VEIHy_w9fBFCyS66wwdqyydqWVFxl06c-U4au_ky8UEfqIIJ5c4R4rBF367G)
 
-[<img width="600" height="315" alt="image" src="https://github.com/user-attachments/assets/178cb930-7d12-4e2d-b131-4eafbbcf85ca" />](https://camau.gov.vn/thong-tin-thi-dua-khen-thuong/lay-y-kien-nhan-dan-doi-voi-15-ca-nhan-de-nghi-tang-thuong-huan-chuong-lao-dong-301599?gidzl=Uz137IZroXbvoaeR9-pE67VEIHy_w9fBFCyS66wwdqyydqWVFxl06c-U4au_ky8UEfqIIJ5c4R4rBF367G)
+<img width="330" height="746" alt="HCLĐ1" src="https://github.com/user-attachments/assets/fea4cb48-3a60-4546-86b0-9074bc3dd9b9" />
 
+## [Đang lấy ý kiến đề nghị xét tặng danh hiệu “Thầy thuốc Ưu tú”](https://camau.gov.vn/tin-tuc-su-kien/33-ho-so-duoc-hoi-dong-cap-tinh-de-nghi-xet-tang-danh-hieu-thay-thuoc-nhan-dan-thay-thuoc-uu-tu-304506?fbclid=IwdGRzaATpJyhjbGNrBOknCXBkb2YBZXh0bgNhZW0CMTEAc3J0YwZhcHBfaWQMMzUwNjg1NTMxNzI4AAEeAgNTIo76y0SsOFc2Sv0rEFuXSoOfF1WVVHWAXXJ1PvPwuuuTl0DMfxbpFm8_aem_MiBrIc9Z6C_21URDUxx7ag&gidzl=DECq6u7Haoqs-JqTZiYNB3ZuEnAMoSPqS_bk5SURmt1pgJeIbfgS9I2eO4EMcfuXTQjWH3601fy7XTIVAG)
 
-## Đang lấy ý kiến đề nghị xét tặng danh hiệu “Thầy thuốc Ưu tú”
-
-[<img width="610" height="365" alt="image" src="https://github.com/user-attachments/assets/04bbecde-f620-4d18-8b24-b10d7051ef2b" />
-](https://camau.gov.vn/tin-tuc-su-kien/33-ho-so-duoc-hoi-dong-cap-tinh-de-nghi-xet-tang-danh-hieu-thay-thuoc-nhan-dan-thay-thuoc-uu-tu-304506?fbclid=IwdGRzaATpJyhjbGNrBOknCXBkb2YBZXh0bgNhZW0CMTEAc3J0YwZhcHBfaWQMMzUwNjg1NTMxNzI4AAEeAgNTIo76y0SsOFc2Sv0rEFuXSoOfF1WVVHWAXXJ1PvPwuuuTl0DMfxbpFm8_aem_MiBrIc9Z6C_21URDUxx7ag&gidzl=DECq6u7Haoqs-JqTZiYNB3ZuEnAMoSPqS_bk5SURmt1pgJeIbfgS9I2eO4EMcfuXTQjWH3601fy7XTIVAG)
+<img width="1024" height="1536" alt="Thầy thuốc ưu tú" src="https://github.com/user-attachments/assets/a46b917e-1fa9-4105-a630-0355f208516f" />
 
 - Hơn hai mươi lăm năm gắn bó với ngành y, tôi đã đi qua nhiều cung bậc cảm xúc của cuộc đời người thầy thuốc. Đó là những đêm trực dài, những ca bệnh nặng, những thời khắc đối mặt với ranh giới mong manh giữa sự sống và cái chết. Nhưng trên hết, đó còn là niềm hạnh phúc khi chứng kiến người bệnh hồi phục, nhìn thấy nụ cười của gia đình họ và được góp một phần nhỏ bé vào hành trình mang lại sự sống, niềm tin và hy vọng cho con người.
 - Mỗi chặng đường đã qua đều để lại những bài học sâu sắc về lòng nhân ái, trách nhiệm và sự tận tâm. Nhìn lại hành trình ấy, tôi càng thấm thía rằng không có thành công nào được tạo nên từ sự đơn độc. Mỗi bước trưởng thành của tôi hôm nay đều được vun đắp từ tình yêu thương, sự hy sinh thầm lặng và sự đồng hành bền bỉ của rất nhiều người.
