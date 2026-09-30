@@ -22,13 +22,7 @@
 
 <ul>
   <li align="justify">
-    Hơn hai mươi lăm năm gắn bó với ngành y, tôi đã đi qua nhiều cung bậc cảm xúc của cuộc đời người thầy thuốc. Đó là những đêm trực dài, những ca bệnh nặng, những thời khắc đối mặt với ranh giới mong manh giữa sự sống và cái chết. Nhưng trên hết, đó còn là niềm hạnh phúc khi chứng kiến người bệnh hồi phục, nhìn thấy nụ cười của gia đình họ và được góp một phần nhỏ bé vào hành trình mang lại sự sống, niềm tin và hy vọng cho con người.
-  </li>
-</ul>
-
-<ul>
-  <li align="justify">
-    Mỗi chặng đường đã qua đều để lại những bài học sâu sắc về lòng nhân ái, trách nhiệm và sự tận tâm. Nhìn lại hành trình ấy, tôi càng thấm thía rằng không có thành công nào được tạo nên từ sự đơn độc. Mỗi bước trưởng thành của tôi hôm nay đều được vun đắp từ tình yêu thương, sự hy sinh thầm lặng và sự đồng hành bền bỉ của rất nhiều người.
+    Hơn hai mươi lăm năm gắn bó với ngành y, tôi đã đi qua nhiều cung bậc cảm xúc của cuộc đời người thầy thuốc. Đó là những đêm trực dài, những ca bệnh nặng, những thời khắc đối mặt với ranh giới mong manh giữa sự sống và cái chết. Nhưng trên hết, đó còn là niềm hạnh phúc khi chứng kiến người bệnh hồi phục, nhìn thấy nụ cười của gia đình họ và được góp một phần nhỏ bé vào hành trình mang lại sự sống, niềm tin và hy vọng cho con người. Mỗi chặng đường đã qua đều để lại những bài học sâu sắc về lòng nhân ái, trách nhiệm và sự tận tâm. Nhìn lại hành trình ấy, tôi càng thấm thía rằng không có thành công nào được tạo nên từ sự đơn độc. Mỗi bước trưởng thành của tôi hôm nay đều được vun đắp từ tình yêu thương, sự hy sinh thầm lặng và sự đồng hành bền bỉ của rất nhiều người.
   </li>
 </ul>
   
