@@ -8,6 +8,10 @@
   <img width="350" alt="Ảnh BS Thành 4x6" src="https://github.com/user-attachments/assets/d11e7e99-f069-4974-a790-6a1e98dadb9d" />
 </p>
 
+## Nhận Kỷ niệm chương "Vì sức khỏe nhân dân" năm 2026
+
+[<img width="727" height="498" alt="KNC" src="https://github.com/user-attachments/assets/a058d061-f331-41ed-b655-05d346b81775" />](https://drive.google.com/file/d/102e9Xsme0ovt7d1TQRjAqfnWbc9kncrt/view?usp=sharing)
+
 ## Đang lấy ý kiến đề nghị tặng thưởng Huân chương Lao động hạng Ba
 
 [<img width="600" height="315" alt="image" src="https://github.com/user-attachments/assets/178cb930-7d12-4e2d-b131-4eafbbcf85ca" />](https://camau.gov.vn/thong-tin-thi-dua-khen-thuong/lay-y-kien-nhan-dan-doi-voi-15-ca-nhan-de-nghi-tang-thuong-huan-chuong-lao-dong-301599?gidzl=Uz137IZroXbvoaeR9-pE67VEIHy_w9fBFCyS66wwdqyydqWVFxl06c-U4au_ky8UEfqIIJ5c4R4rBF367G)
@@ -34,7 +38,7 @@ Tôi tự hào và biết ơn con trai yêu quý, nguồn động lực để t�
 
 
 <p align="right">
-<b><i>BSCKI Nguyễn Chí Thành</i></b>
+<b><i>Thầy thuốc ưu tú, BSCKI Nguyễn Chí Thành</i></b>
 </p>
 
 
