@@ -45,7 +45,7 @@
 </p>
 
 <p align="right">
-<b><i>Thầy thuốc ưu tú, BSCKI Nguyễn Chí Thành</i></b>
+<b><i>BSCKI Nguyễn Chí Thành</i></b>
 </p>
 
 https://github.com/user-attachments/assets/3adf8c69-d804-45f2-b79e-8522aaae3997
