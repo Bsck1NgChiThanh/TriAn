@@ -41,8 +41,10 @@
 </p>
 
 <p align="justify">
-&#12288;&#12288;&#12288;&#12288;Xin được cúi đầu tri ân tất cả những ân tình quý giá đã góp phần tạo nên con người tôi của ngày hôm nay. Những nghĩa tình ấy là nguồn sức mạnh để tôi tiếp tục sống tử tế, làm việc tận tâm và giữ trọn ngọn lửa yêu nghề trên con đường phụng sự nhân dân. Bởi lẽ, danh hiệu cao quý nhất của người thầy thuốc không chỉ là sự ghi nhận của xã hội, mà còn là niềm tin yêu của người bệnh và sự thanh thản trong lương tâm khi biết rằng mình đã sống trọn vẹn với hai chữ: **CỐNG HIẾN**.
+&#12288;&#12288;&#12288;&#12288;Xin được cúi đầu tri ân tất cả những ân tình quý giá đã góp phần tạo nên con người tôi của ngày hôm nay. Những nghĩa tình ấy là nguồn sức mạnh để tôi tiếp tục sống tử tế, làm việc tận tâm và giữ trọn ngọn lửa yêu nghề trên con đường phụng sự nhân dân. Bởi lẽ, danh hiệu cao quý nhất của người thầy thuốc không chỉ là sự ghi nhận của xã hội, mà còn là niềm tin yêu của người bệnh và sự thanh thản trong lương tâm khi biết rằng mình đã sống trọn vẹn với hai chữ: <b>CỐNG HIẾN</b>.
 </p>
+
+
 
 <p align="right">
 <b><i>BSCKI Nguyễn Chí Thành</i></b>
